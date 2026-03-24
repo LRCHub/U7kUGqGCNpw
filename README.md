@@ -1,0 +1,70 @@
+# LANY – Prettiest Thing I’ve Ever Seen
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I couldn't tell you how
+The moon can pull the tide without a string
+Or why do we dream
+Or how much time apart
+For broken things to finally start to heal
+Or if heaven's real
+There's an infinite number of patterns
+And I've got no business with Saturn
+As long as I've got you for all of my days
+Does any of that even matter?
+'Cause the smile that you give from the side of your eye
+The glow of your skin on a late summer night
+You're the prettiest thing I've ever seen
+The prettiest thing I've ever seen
+The way that you come, the way that you go
+The way you're the only one who doesn't know
+You're the prettiest thing I've ever seen
+The prettiest thing I've ever seen, oh
+Oh-oh-oh, mm
+Mm, oh, no
+I don't know what tomorrow holds
+But I'll be holding onto you
+This much is true
+I love the heart that's in your chest
+And everything surrounding it
+Yeah, I'm obsessed
+There's an infinite number of patterns
+And I've got no business with saturn
+As long as I've got you for all of my days
+Oh babe, does any of that even matter?
+'Cause the smile that you give from the side of your eye
+The glow of your skin on a late summer night
+You're the prettiest thing I've ever seen
+The prettiest thing I've ever seen
+The way that you come, the way that you go
+The way you're the only one who doesn't know
+You're the prettiest thing I've ever seen
+The prettiest thing I've ever seen, oh
+Oh-oh
+You are, you are
+Oh-oh
+You are, you are
+I mean what I say and I say what I mean
+Not everything has to be deep
+Oh-oh
+You are, you are
+Oh-oh
+You are, you are
+Babe, take a bow, you're a ten, you're a dream
+I envy the air that you breathe
+'Cause the smile that you give from the side of your eye
+The glow of your skin on a late summer night
+You're the prettiest thing I've ever seen
+Prettiest thing I've ever seen
+The way that you come, the way that you go
+The way you're the only one who doesn't know
+You're the prettiest thing I've ever seen
+The prettiest thing I've ever seen, oh
+Oh-oh
+You are, you are, oh
+Oh-oh
+You are, you are
+You're the prettiest thing I've ever seen
+Prettiest thing I've ever seen, oh
+```
